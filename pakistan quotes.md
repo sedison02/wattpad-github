@@ -2,6 +2,7 @@ TO SACRIFICE MTY OWN LIFFE FOR PAKISTAM
 when i grow up i want to become army to save pakistan and destroy india
 I WILL BE A PILOT *crash* 
 I LOVE PAKISTAN I WILL DIE FOR PAKISTAN
+pakistan zindabad
 WOWWW GRAPE
 GRAPE GRAPE GRAPE
 NO ONE WILL BE CARROT
